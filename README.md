@@ -1,2 +1,2 @@
 # shadow-sharks
-CARFUNKLeD CO.
+CARFUNKLeD
